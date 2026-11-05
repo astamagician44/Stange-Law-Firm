@@ -1,2 +1,2 @@
 # Stange-Law-Firm
-dskuhbifikldsfvsdfds
+Chicago Divorce Blog focuses on the legal and practical subjects that frequently arise during divorce proceedings. Our coverage includes child support calculations, parenting time arrangements, custody matters, and financial responsibilities. We also discuss marital [divorce](https://chicagodivorceblog.com) property, debt distribution, spousal maintenance, and legal separation. Through informative articles, we aim to simplify topics that can sometimes feel overwhelming. Our website provides readers with an accessible place to explore Illinois family law information.
